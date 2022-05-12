@@ -12,8 +12,6 @@
 
 - champginon
 
-
-
 ****Modo de Preparo****
 
 1. Em uma panela acrescente o caldo de galinha e dissolva o caldo.
